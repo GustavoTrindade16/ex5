@@ -14,4 +14,4 @@ e uma:
 
 [sabor supremo](https://www.youtube.com/watch?v=pL_MlbPo3kg)
 
-![foto](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.iguaria.com%2Fprato-principal%2Facompanhamento%2Fbatatas-fritas-pala-pala%2F&psig=AOvVaw1UkCiSVOIl29X9AADlosaL&ust=1699097316817000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCJiSrPLcp4IDFQAAAAAdAAAAABAe.html)
+![foto](https://www.nicepng.com/maxp/u2t4o0w7q8t4a9t4/)
